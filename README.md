@@ -1,4 +1,4 @@
-## I'm NONOGA Djintoba. I'm a student of applied mathematics and computer science on RUDN University
+## I'm Nonoga Djintoba. I'm a student of applied mathematics and computer science on RUDN University
 
 ### I live in Moscow.
 
